@@ -34,6 +34,7 @@
   
 - [Orientação para a produção da atividade avaliativa](https://drive.google.com/drive/folders/1VvdXTvXUuqigutovfixcMPR7F1_CY6ZC?usp=sharing)
 
+- [Gravação - aula 1](https://drive.google.com/drive/folders/1x5nAxP7ui9JrYIz3VFSQ0BZP2uRgyd_9?usp=sharing)
 
 
 
