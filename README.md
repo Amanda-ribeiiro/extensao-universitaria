@@ -8,3 +8,5 @@
 
 [![Link do Curso](https://img.shields.io/badge/▶-000?style=for-the-badge&logo=movie&logoColor=E94D5F)](https://student.ulife.com.br/ContentPlayer/Index?lc=g3uUAcWXQzQ0dkuUV7SJmA%3d%3d&l=HBxmh07QOQp839EjPbp9YA%3d%3d&cd=ak2S2nOc30E3QYCoHtmzaQ%3d%3d&sl=ACFdBAwNYJcCXLzBpH3P2A%3d%3d&st=ACFdBAwNYJcCXLzBpH3P2A%3d%3d&oi=VLBmY5RzG3ivfTk02LTXUQ%3d%3d)
 [![Link do Curso](https://img.shields.io/badge/Acesse%20o%20Curso%20na%20Plataforma-E94D5F?style=for-the-badge)](https://student.ulife.com.br/ContentPlayer/Index?lc=g3uUAcWXQzQ0dkuUV7SJmA%3d%3d&l=HBxmh07QOQp839EjPbp9YA%3d%3d&cd=ak2S2nOc30E3QYCoHtmzaQ%3d%3d&sl=ACFdBAwNYJcCXLzBpH3P2A%3d%3d&st=ACFdBAwNYJcCXLzBpH3P2A%3d%3d&oi=VLBmY5RzG3ivfTk02LTXUQ%3d%3d)
+
+![image](https://github.com/Amanda-ribeiiro/extensao-universitaria/assets/108890154/ce82f29b-5c01-4732-b77d-9db2a6c3b6c7)
